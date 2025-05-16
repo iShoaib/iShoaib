@@ -17,7 +17,7 @@ eCommerce • On-Demand Delivery • HealthTech • HR & Admin • Social • Ed
 
 🔗 Connect with me:
 - 💼 [Upwork Profile](https://www.upwork.com/freelancers/~01c65c80293aa1dd91)
-- 🌐 [LinkedIn](https://linkedin.com/in/your-link-here)
+- 🌐 [LinkedIn](https://www.linkedin.com/in/ishoaib/)
 - ✉️ Email: iamshoaiblatif@gmail.com
 
 📌 Latest Projects:
